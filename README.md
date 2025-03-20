@@ -35,4 +35,6 @@ If you're ever sad:
 
 I like the songs Bullet, Nights Like These, anything 4 U!, and Not allowed!!! (:
 
+uhh i have 1 issue thingy
+
 
