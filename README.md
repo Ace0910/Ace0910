@@ -25,10 +25,6 @@ Lyrics::
 
 "And I stayed up, chain-smoking in the kitchen Until you got home and the curtains were on fire Frick, I'm sorry you feel all alone With the T.V. blasting shadows on my face Hitching back to the apartment It was such a lonely place I place my head between my knees and think "Do you ever have nights like these?""
 
-Things u dont know abt me:
-
-I draw when I'm sad, giving is how I show people I love them, I want to hear what people are upset abt more than I want to talk abt myself, and Im bipolar (now i realie how obvious it is lol) (:
-
 Future:
 
 I don't think about the future often, but when I do, I see myself with 2 dogs. I'm not 100 percent sure which job I'd want, but I'm thinking of a criminal attorney, a teacher, a psychotherapist, or an artist.
@@ -39,6 +35,4 @@ If you're ever sad:
 
 I like the songs Bullet, Nights Like These, anything 4 U!, and Not allowed!!! (:
 
-Also.. if ya know me then you know I can be a b**** to people who have wronged me but I'm also rlly forgiving usually.
 
-I dont hate anyone but I dislike one.
