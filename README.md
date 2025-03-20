@@ -11,13 +11,13 @@ Animal: Arctic wolf (I give stuffed animals to people I love)
 
 Demon: Azazel <3 (yes I do have a favorite demon)
 
-People: D, C, M, J, A, E, N, B, I, M
+People: D, C, M, A, E, N, B, I, M
 
 Holiday: Halloween
 
 Lyrics::
 
-"If the whole world was watchin' i'd still dance with u <3"
+"If the whole world was watchin' I'd still dance with u <3"
 
 "You should see when you not around and it's just us h***y poets who can't wait to write it down, swear were only being honest"
 
@@ -31,10 +31,14 @@ I draw when I'm sad, giving is how I show people I love them, I want to hear wha
 
 Future:
 
-I don't think about the future often, but when I do, I see myself with 2 dogs. I'm not 100 percent sure which job I'd want, but I'm thinking of a criminal attorney, a teacher, a psycho therapist, or an artist.
+I don't think about the future often, but when I do, I see myself with 2 dogs. I'm not 100 percent sure which job I'd want, but I'm thinking of a criminal attorney, a teacher, a psychotherapist, or an artist.
 
 My DREAM school is Yale or the University of Utah. (I know, very different)
 
-If your ever sad:
+If you're ever sad:
 
-I like the songs bullet, Nights Like These, anything 4 U!, and Not allowed!!! (:
+I like the songs Bullet, Nights Like These, anything 4 U!, and Not allowed!!! (:
+
+Also.. if ya know me then you know I can be a b**** to people who have wronged me but I'm also rlly forgiving usually.
+
+I dont hate anyone but I dislike one.
