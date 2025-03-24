@@ -10,12 +10,12 @@ Animal: Arctic wolf (I give stuffed animals to people I love)
 
 Demon: Azazel <3 (yes I do have a favorite demon)
 
-
+People: Nevia, Honestly, i would have never gotten into volleyball without her, I appreciate her a lot.
 Holiday: Halloween
 
-Lyrics::
+sport: volleyball
 
-"If the whole world was watchin' I'd still dance with u <3"
+Lyrics::
 
 "You should see when you not around and it's just us h***y poets who can't wait to write it down, swear were only being honest"
 
@@ -33,6 +33,6 @@ If you're ever sad:
 
 I like the songs Bullet, Nights Like These, anything 4 U!, and Not allowed!!! (:
 
-uhh I have 1 issue thingy
+uhh I have 1 issue thing
 
 
