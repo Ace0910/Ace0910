@@ -11,7 +11,6 @@ Animal: Arctic wolf (I give stuffed animals to people I love)
 
 Demon: Azazel <3 (yes I do have a favorite demon)
 
-People: D, C, M, A, E, N, B, I, M
 
 Holiday: Halloween
 
