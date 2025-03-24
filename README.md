@@ -1,7 +1,6 @@
 ## Hi there 👋
 Hi, my name is Ella. (Ace works too).
 
-Pronours: she/her
 
 MY FAVORITES:
 
@@ -34,6 +33,6 @@ If you're ever sad:
 
 I like the songs Bullet, Nights Like These, anything 4 U!, and Not allowed!!! (:
 
-uhh i have 1 issue thingy
+uhh I have 1 issue thingy
 
 
