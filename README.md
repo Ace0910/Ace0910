@@ -8,6 +8,8 @@ Favorite color combo: Orange and purple!
 
 Animal: Arctic wolf (I give stuffed animals to people I love)
 
+Person: idc if they dont feel the same but danny
+
 Demon: Azazel <3 (yes I do have a favorite demon)
 
 People: Nevia, Honestly, i would have never gotten into volleyball without her, I appreciate her a lot.
