@@ -8,7 +8,7 @@ Favorite color combo: Orange and purple!
 
 Animal: Arctic wolf (I give stuffed animals to people I love)
 
-Person: idc if they dont feel the same but danny
+Person: idc if they dont feel the same but 
 
 Demon: Azazel <3 (yes I do have a favorite demon)
 
@@ -18,6 +18,9 @@ Holiday: Halloween
 sport: volleyball
 
 Lyrics::
+
+"Hey baby wont ya look my way? I can be your new addiction.."
+
 
 "You should see when you not around and it's just us h***y poets who can't wait to write it down, swear were only being honest"
 
