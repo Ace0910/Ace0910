@@ -1,6 +1,8 @@
 ## Hi there 👋
 Hi, my name is Ella. (Ace works too).
 
+Checkout my issue named: EVERYTHING
+
 lyrics:
 
 "You won't find him down on sunset Or at a party in the hills At the bottom of the bottle Or when you're tripping on some pills When they sold you the dream you were just 16 Packed a bag and ran away And it's a crying shame you came all this way 'Cause you won't find Jesus in LA"
